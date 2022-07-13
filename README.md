@@ -11,7 +11,7 @@ Cool friends and SOs welcome
 
 https://visittartu.com/lake-verevi-beach
 
-Depart Tartu bus station at 12:20
+**Depart Tartu bus station at 12:20**
 
 Arrive in Elva at 1 PM
 
