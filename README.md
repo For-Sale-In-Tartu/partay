@@ -4,6 +4,9 @@ You are invited to an awesome party on July 23
 
 Cool friends and SOs welcome
 
+<br>
+<br>
+
 ## Round 1: Beach and platform jumping at Lake Verevi in Elva
 
 https://visittartu.com/lake-verevi-beach
